@@ -1,0 +1,1 @@
+Our group's web project was originally designed to educate the public and was aimed primarily at film and travel enthusiasts. The film is mainly aimed at Harry Potter and the locations are mainly aimed at the UK.
